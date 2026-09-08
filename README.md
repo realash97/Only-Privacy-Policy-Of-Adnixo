@@ -1,1 +1,1 @@
-# Only-Privacy-Policy-Of-Adnixo
+# Public Only-Privacy-Policy-Of-Adnixo
